@@ -14,7 +14,7 @@ Let’s **level up** the fun together!
 ---
 
 ### **Connect with Me:**
-- **Discord**: [Join the community]([https://discord.com/invite/your-link](https://discord.gg/9fMyERBT5J))
+- **Discord**: [Join the community](https://discord.com/invite/your-link](https://discord.gg/9fMyERBT5J)
 - **YouTube**: [BeyondGaming Channel](https://www.youtube.com/channel/@BeyondGamingOfficial)
 
 🎮 **Game hard. Stay entertained.**
